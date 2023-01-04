@@ -16,8 +16,6 @@ Anime Fav [Naruto](https://www.imdb.com/title/tt0988824/?ref_=ext_shr_lnk), [Kim
 - <a href="https://www.instagram.com/iman.rmdn/">Instagram</a>
 - [Email](imanramadhan201@gmail.com)
 - <a href="https://twitter/Ohkageee">Twitter</a> <a href="https://user-images.githubusercontent.com/101419944/184084723-e19f6268-fb0d-4ede-bcef-153195c556a3.mp4"/></a>
-### Kim Sejeong
-<img src="https://user-images.githubusercontent.com/101419944/184086572-2ca90f7d-a554-49a4-a374-8196c69e3ca5.jpg" width="100%" height="auto"/></a>
 
 ### My Content
 
