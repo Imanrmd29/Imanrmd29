@@ -5,9 +5,9 @@
 
 Perkenalkan nama saya **Iman Ramadhan**.
 
-Saya seorang **Mahasiswa** di [Universitas Teknologi Digital Indonesia](https://www.utdi.ac.id/).
+Saya lulusan **Diploma 3 di Fakultas Teknologi Informasi** [Universitas Teknologi Digital Indonesia](https://www.utdi.ac.id/).
 
-Sedang mempelajari tentang dunia IT, seperti Network, Android Developer, dan Internet of Things.
+Sedang mempelajari tentang dunia IT, seperti Network, Mobile Developer, UI/UX Design dan Internet of Things.
 
 Anime Fav [Naruto](https://www.imdb.com/title/tt0988824/?ref_=ext_shr_lnk), [Kimetsu No Yaiba](https://www.imdb.com/title/tt9335498/?ref_=ext_shr_lnk), [Jujutsu Kaisen](https://www.imdb.com/title/tt12343534/?ref_=ext_shr_lnk), [Bleach](https://www.imdb.com/title/tt0434665/?ref_=ext_shr_lnk)
 
