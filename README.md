@@ -17,6 +17,6 @@ Anime Fav [Naruto](https://www.imdb.com/title/tt0988824/?ref_=ext_shr_lnk), [Kim
 - [Email](imanramadhan201@gmail.com)
 - <a href="https://twitter/Ohkageee">Twitter</a> <a href="https://user-images.githubusercontent.com/101419944/184084723-e19f6268-fb0d-4ede-bcef-153195c556a3.mp4"/></a>
 
-### My Content
+### My Motivation
 
-<a href="https://user-images.githubusercontent.com/101419944/184084723-e19f6268-fb0d-4ede-bcef-153195c556a3.mp4" width="auto" height="auto"/></a>
+<a href="https://user-images.githubusercontent.com/101419944/184084723-e19f6268-fb0d-4ede-bcef-153195c556a3.mp4" width="100" height="120"/></a>
